@@ -4,7 +4,7 @@ I'm a Fractional CMO who blends the strategic mindset of an MBA with the technic
 
 📕  Latest Blog Posts
 <!-- BLOG-POST-LIST:START -->
-[The Rise of the Fractional CMO: How to Access Top Tier Marketing Leadership](https://ppc12x.agency/2024/07/06/the-rise-of-the-fractional-cmo-how-to-access-top-tier-marketing-leadership/)
+[Why Hiring a Fractional CMO is the Smartest Move for Your Business This 2025](https://www.rogemabag.com/post/why-hiring-a-fractional-cmo-is-the-smartest-move-for-your-business-this-2025)
 
 
 <!-- BLOG-POST-LIST:END -->
